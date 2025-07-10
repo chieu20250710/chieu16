@@ -10,4 +10,4 @@
 
 这些平台专注于久久无码鲁丝片资源，提供丰富多样的欧美及日韩免费影视内容，更新及时，分类细致。每个视频页面配备详细影片介绍，包括播放时长、清晰度及演员信息，支持高清流畅播放，并根据网络速度自动调整画质，保障观看体验顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu16 ）</span>
